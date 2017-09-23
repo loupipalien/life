@@ -60,7 +60,7 @@
 你的名字 :thumbsup:  
 告白 :thumbsup: :thumbsup:  
 被嫌弃的松子的一生 :thumbsup: :thumbsup: (背景音乐:まげてのばして)  
-入殓师 :thumbsup: :thumbsup: (背景音乐:~memory~)   
+入殓师 :thumbsup: :thumbsup: (背景音乐:\~memory\~)   
 萤火虫之墓 :thumbsup: (龙希推荐)  
 
 #### 印度
@@ -72,7 +72,7 @@
 幻影车神-魔盗激情  
 小萝莉的猴神大叔 :thumbsup: :thumbsup:  
 平民窟的百万富翁 :thumbsup: :thumbsup:  
-<span title="陈啸云,陈萧尧推荐">功夫小蝇<span>  
+功夫小蝇 (陈啸云,陈萧尧推荐)  
 
 #### 伊朗
 小鞋子 :thumbsup: :thumbsup:
