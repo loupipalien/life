@@ -10,7 +10,8 @@
 - [动漫](#6)
 
 #### <span id="DF">访谈节目</span>
-<span title="阿米尔.汉一生粉">真相访谈</span> :thumbsup: :thumbsup:
+真相访谈 :thumbsup: :thumbsup: (阿米尔.汉一生粉)  
+穹顶之下
 
 #### <span id="DF">纪录片</span>
 最后的棒棒 :thumbsup: :thumbsup:
@@ -27,4 +28,4 @@
 逃避可耻但有用 :thumbsup:  
 半泽直树 :thumbsup:  
 面包和汤和喵咪还有好天气 :thumbsup:  
-<span title="初入日剧,居然没认出我的gakki老婆大人">龙樱 :thumbsup:  
+龙樱 :thumbsup: (初入日剧,居然没认出我的gakki老婆大人)  

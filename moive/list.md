@@ -23,7 +23,7 @@
 大话西游之大圣娶亲 :thumbsup: :thumbsup:  
 喜剧之王 :thumbsup: :thumbsup:  
 少林足球 :thumbsup:  
-<span title="背景音乐:只要为你活一天">功夫</sapn> :thumbsup:  
+功夫 :thumbsup: (背景音乐:只要为你活一天)  
 国产凌凌漆  
 九品芝麻官  
 算死草  
@@ -55,16 +55,16 @@
 
 #### 日本
 嫌疑人X的献身 :thumbsup: :thumbsup:  
-<span title="大概是被作为朋友的最高评价了吧:如若你死了,以后大家回忆起你,应该都是带着笑的.">横道世之介</span> :thumbsup: :thumbsup:  
+横道世之介 :thumbsup: :thumbsup: (大概是被作为朋友的最高评价了吧:如若你死了,以后大家回忆起你,应该都是带着笑的.)   
 无人知晓 :thumbsup: :thumbsup:  
 你的名字 :thumbsup:  
 告白 :thumbsup: :thumbsup:  
-<span title="背景音乐:まげてのばして">被嫌弃的松子的一生</span> :thumbsup: :thumbsup:  
-<span title="背景音乐:~memory~">入殓师 :thumbsup: :thumbsup:  
-<span title="龙希推荐">萤火虫之墓</span> :thumbsup:  
+被嫌弃的松子的一生 :thumbsup: :thumbsup: (背景音乐:まげてのばして)  
+入殓师 :thumbsup: :thumbsup: (背景音乐:~memory~)   
+萤火虫之墓 :thumbsup: (龙希推荐)  
 
 #### 印度
-<span title="哈哈,想起还是高中宿舍四个人挤在一张床上拿着MP4看的">三傻大闹宝莱坞</span> :thumbsup: :thumbsup:  
+三傻大闹宝莱坞 :thumbsup: :thumbsup: (哈哈,想起还是高中宿舍四个人挤在一张床上拿着MP4看的)  
 地球上的星星 :thumbsup: :thumbsup:  
 我的个神啊 :thumbsup:  
 芭萨提的颜色 :thumbsup: :thumbsup:    
@@ -75,7 +75,7 @@
 <span title="陈啸云,陈萧尧推荐">功夫小蝇<span>  
 
 #### 伊朗
-小鞋子 :thumbsup: :thumbsup: 
+小鞋子 :thumbsup: :thumbsup:
 
 #### 法国
 放牛班的春天 :thumbsup: :thumbsup:  
