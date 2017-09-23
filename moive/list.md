@@ -3,13 +3,14 @@
 ### 索引    
 - [中国内地](#中国内地)  
 - [中国香港](#中国香港)    
-- [中国台湾](#中国)    
-- [韩国](#KR)
-- [日本](#JP)
-- [美国](#4)
-- [印度](#IND)
-- [伊拉克](#6)
-- [短片](#last)
+- [中国台湾](#中国台湾)    
+- [韩国](#韩国)
+- [日本](#日本)
+- [美国](#美国)
+- [印度](#印度)
+- [伊朗](#伊朗)
+- [法国](#法国)
+- [短片](#短片)
 
 #### 中国内地
 活着 :thumbsup: :thumbsup:  
@@ -17,7 +18,7 @@
 秋菊打官司 :thumbsup:  
 菊豆 :thumbsup:  
 独自等待 :thumbsup:  
-##### 中国香港
+#### 中国香港
 大话西游之月光宝盒 :thumbsup: :thumbsup:  
 大话西游之大圣娶亲 :thumbsup: :thumbsup:  
 喜剧之王 :thumbsup: :thumbsup:  
@@ -33,7 +34,7 @@
 枪火 :thumbsup: :thumbsup:  
 无间道 :thumbsup: :thumbsup:  
 岁月神偷 :thumbsup: :thumbsup:  
-##### 中国台湾
+#### 中国台湾
 枯岭街少年杀人事件 :thumbsup: :thumbsup:  
 一一 :thumbsup: :thumbsup:  
 听说 :thumbsup:  
@@ -72,6 +73,12 @@
 小萝莉的猴神大叔 :thumbsup: :thumbsup:  
 平民窟的百万富翁 :thumbsup: :thumbsup:  
 <span title="陈啸云,陈萧尧推荐">功夫小蝇<span>  
+
+#### 伊朗
+小鞋子 :thumbsup: :thumbsup: 
+
+#### 法国
+放牛班的春天 :thumbsup: :thumbsup:  
 
 #### 短片
 三十二 :thumbsup: :thumbsup:  
