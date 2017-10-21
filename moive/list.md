@@ -78,7 +78,9 @@
 小鞋子 :thumbsup: :thumbsup:
 
 #### 法国
-放牛班的春天 :thumbsup: :thumbsup:  
+放牛班的春天 :thumbsup: :thumbsup:    
+芳芳 (有段舞超赞, call of the stomp)
+初吻 (背景音乐: reality)
 
 #### 短片
 三十二 :thumbsup: :thumbsup:  
